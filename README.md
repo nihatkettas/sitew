@@ -1,0 +1,1 @@
+izinsiz kullanılması yasaktır
